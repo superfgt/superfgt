@@ -1,11 +1,11 @@
-### <p align="center"> ╰  One step forward, two steps back, i'm here . ☆
+### <p align="center"> ╰  One step forward, two steps back, i'm here ☆
 
 <p align="center"> <img src="https://64.media.tumblr.com/08748ee2ca512edc84f2e9adeb0ed77b/dc3fa06d170e898e-87/s640x960/6f8df91945230853084e1a9cc52771634792e592.pnj">
   
 <p align="center">  ☾ ⠀⠀  Shadow  ⠀.
-<p align="center"> ⠀ 6teen ﹒ 🇩🇪 ⠀⠀⟡     
-<p align="center">✧ rentry byi ﹒sign ata
-<p align="center"> i follow people i fw ✦ 
+<p align="center"> ⠀ 6teen ﹒ 🇩🇪 ⠀⟡     
+<p align="center">✧ rentry byi ﹒ sign ata
+<p align="center"> ⠀i follow people i fw ✦ 
 <p align="center"> <a href="https://superfgt.atabook.org">atabook</a>　　⟡　　<a href="https://rentry.co/superfgt">rentry</a> <br>
 
 
