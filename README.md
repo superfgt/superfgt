@@ -2,7 +2,6 @@
 
 <p align="center"> <img src="https://64.media.tumblr.com/54e817b99d06ec38256cd6c6b661fdb0/ba87986006898c04-8b/s2048x3072/27ab4cc0018fd196ee1c716a4d996c197af4ba11.pnj">
   
-<p align="center">─────◟<  @beetledtiger   3◝─────
 <p align="center">  6teen · 🇩🇪 ⟡     
 <p align="center">✧ rentry byi · sign ata
 <p align="center"> i follow people i fw ✦ 
