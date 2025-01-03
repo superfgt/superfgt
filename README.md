@@ -1,3 +1,4 @@
+## <p align="center" style="color: #FF6347;">╰  _One step forward, two steps back, i'm here_ . ☆</p>
 
 ## <p align="center">  ╰  _One step forward, two steps back, i'm here_ . ☆
 
